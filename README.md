@@ -43,7 +43,6 @@ When an enterprise moves into a community and pulls millions of gallons of potab
 ​Option B: Techno-Communalism. The community owns the automated assets inside designated operational zones. If a bot farms, builds, or manages utilities, its output flows directly into public housing, local food grids, and guaranteed living standards. Technology serves as a public utility, not a landlord.
 
 
-​Zoned Sovereignty: The Wolf and The Angel
-​Techno-communalism doesn't require rewriting the entire federal government overnight. It works through zoned autonomy—carving out specific, self-governing enclaves (similar to tribal land trusts or municipal utility districts) that choose to run on public cooperation rather than private extraction.
+​Zoned Sovereignty: This does not require rewriting the entire federal government overnight. It works through zoned autonomy—carving out specific, self-governing enclaves (similar to tribal land trusts or municipal utility districts) that choose to run on public cooperation rather than private extraction.
 
 
