@@ -1,6 +1,4 @@
-# Constitutional-Question-Why-Data-Center-MUST-be-on-the-Ballot-
 
-The Constitutional Question: Why the Data Center Belongs on the Ballot
 
 
 ​Is dropping a massive data center into a local neighborhood just a routine commercial zoning decision, or is it a high-level Supreme Court Constitutional question?
